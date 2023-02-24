@@ -1,6 +1,6 @@
 # Pottery-Unity-Games
 <br />
-Show Game :https://youtu.be/6UoxvEvPyz8<br />
+Tutorial Video : https://youtu.be/rrCYaxVDz2I  <br />
 Group :https://t.me/Unity_Tutorial_Games<br /><br />
 🎨Game Artist : https://t.me/maria_artgallery<br />
 🎨Game Artist : https://instagram.com/mariaartpro <br /><br />
