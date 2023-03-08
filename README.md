@@ -11,5 +11,4 @@ Google Play: https://play.google.com/store/apps/dev?id=7696656736256201466<br />
 
 <br /><br />
 
-!
 ![banner27](https://user-images.githubusercontent.com/83016119/221118896-6e28e499-2c46-4711-847e-9cdbf911f0b9.png)
